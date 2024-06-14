@@ -1,6 +1,6 @@
 ## Oi, eu sou o Lucas :) 👋🏽
 
-Tenho 18 anos de idade e estou iniciando agora na área da tecnologia! Tenho formação técnica em desenvolvimento de sistemas. 💪🏽
+Tenho 18 anos de idade e estou iniciando minha carreira na área da tecnologia! Tenho formação técnica em desenvolvimento de sistemas. 💪🏽
 
 Estou em constante evolução e aprendizado, sempre em busca de aprender tecnologias novas e me qualificar como um programador do mundo real! ✨🌎
 
